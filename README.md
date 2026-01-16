@@ -1,0 +1,1 @@
+# seizonkakunin-privacy-policy
